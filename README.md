@@ -1,0 +1,2 @@
+# afdfsgfgdgdgdg
+memory card
